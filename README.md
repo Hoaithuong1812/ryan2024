@@ -1,6 +1,6 @@
 # Как получать бесплатные подарки: советы и мой личный опыт
 
-![Image](https://i.postimg.cc/x8c8tTKK/12062.jpg)
+![Image](https://i.postimg.cc/T3nrcR5w/proxy-image.jpg)
 
 ## Бесплатные подарки — это не просто удача
 
